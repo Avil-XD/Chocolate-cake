@@ -1,11 +1,9 @@
 # Chocolate-cake
+Step 1
+Preheat oven to 350 degrees F (175 degrees C). Grease and flour two nine inch round pans.
 
+Step 2
+In a large bowl, stir together the sugar, flour, cocoa, baking powder, baking soda and salt. Add the eggs, milk, oil and vanilla, mix for 2 minutes on medium speed of mixer. Stir in the boiling water last. Batter will be thin. Pour evenly into the prepared pans.
 
-HOW TO MAKE CHOCOLATE CAKE:
-Mix Dry Ingredients. Stir together sugar, flour, cocoa, baking powder, baking soda and salt in large bowl. 
-
-Add wet ingredients:. Eggs, buttermilk, oil and vanilla and mix until well combined.
-Add boiling water. Stir to combine (batter will be thin). Pour batter into prepared pans.
-Bake 30 to 35 minutes or until a toothpick inserted in the center of the cake comes out clean. Allow cakes to cool in the pan for a few minutes before inverting onto a cooling rack. Cool completely before frosting.
-
-Assemble and Frost: Place one cake layer on serving tray. Spread a generous amount of frosting on top. Add second cake layer. Frost top and sides of cake with remaining frosting.
+Step 3
+Bake 30 to 35 minutes in the preheated oven, until the cake tests done with a toothpick. Cool in the pans for 10 minutes, then remove to a wire rack to cool completely.
